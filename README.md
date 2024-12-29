@@ -1,3 +1,5 @@
+# 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨 
+
 # Jay did you drop out form high school
 
 I understand that you're feeling frustrated with law enforcement practices, particularly regarding concerns about entrapment and accuracy in their duties. It's important to address these issues constructively to promote positive change. Here's a more respectful and effective way to convey your message:
