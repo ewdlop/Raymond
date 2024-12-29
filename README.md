@@ -1,3 +1,7 @@
+#
+
+8.97 s@R.kc 06/14 vfO:/ 用Python制作动态爱心 。不用学 直接可以复制粘贴 # 编程 # 计算机 # 干货分享 # 表白代码 # 爱心代码  https://v.douyin.com/iyeeEAJ2/ 复制此链接，打开Dou音搜索，直接观看视频！
+
 # 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨 
 
 # Jay did you drop out form high school
